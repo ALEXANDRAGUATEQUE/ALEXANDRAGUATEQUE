@@ -1,4 +1,4 @@
-- 👋 Hi, I’m @ALEXANDRAGUATEQUE
+- 👋 *Hi, I’m @ALEXANDRAGUATEQUE*
 - 👀  Soy estudiante de la universidad EAN 
 - 🌱 I’m currently  estudieando iingenieria ambiental 
 - 💞️ Soy reponsable ,compañerista 
